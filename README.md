@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
 
-<img src="https://i.postimg.cc/wB0CX5ts/image-removebg-preview-(40).png" width="400">
+<img src="https://i.postimg.cc/qMGSB22r/seavbo.jpg" width="400">
 </div>
 
 <div align="center">
