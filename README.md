@@ -18,7 +18,7 @@
 </div>
 <div align="center">
 ‎ 
-‎ lurking on pony dot Town‎ ‎ ( ˘͈ ᵕ ˘͈♡)
+‎ lurking on pony dot Town‎
 </div>‎ 
 ‎ 
 ‎ 
