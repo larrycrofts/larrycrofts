@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
 
-<img src="https://i.postimg.cc/nhYngx7j/Bebehs.png" width="400">
+<img src="https://i.postimg.cc/dtZ28HCg/bebhies.png" width="390">
 </div>
 
 <div align="center">
