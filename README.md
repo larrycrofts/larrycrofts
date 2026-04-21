@@ -3,7 +3,7 @@
 ‎ 
 ‎<div align="center">
  
-say wallahi Bro
+el thankito? idk Girl
 </div>
 <div align="center">
 
