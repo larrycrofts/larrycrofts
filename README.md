@@ -3,7 +3,7 @@
 ‎ 
 ‎<div align="center">
  
-el thankito? idk Girl
+when your circle small but yall Crazy
 </div>
 <div align="center">
 
