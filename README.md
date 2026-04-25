@@ -7,7 +7,7 @@ when your circle small but yall Crazy
 </div>
 <div align="center">
 
-<img src="https://i.postimg.cc/8zkGxYpR/ezgif-863c10ba688e1859.gif" width="340">
+<img src="https://i.pinimg.com/1200x/d0/c3/3a/d0c33a79e623f9e083cab1c5832f0357.jpg" width="300">
 </div>
 
 <div align="center">
