@@ -4,7 +4,7 @@
 ‎
 <div align="center">
 
-<img src="https://i.postimg.cc/GhthMJmZ/candystor.png" width="220">
+<img src="https://i.postimg.cc/GhthMJmZ/candystor.png" width="200">
 </div>
 
 <div align="center">
