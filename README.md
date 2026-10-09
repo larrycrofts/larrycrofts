@@ -13,7 +13,7 @@
 <div align="center">
  ‎ 
  
- [rentry](https://rentry.co/groff)‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://offer.straw.page)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://smut.atabook.org/)‎‎‎‎
+ [rentry](https://rentry.co/groff)‎ ‎ ‎ ‎ ‎ ‎ ‎ [strawpage](https://offer.straw.page)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://mac.atabook.org/)‎‎‎‎
 </div>
 ‎ 
 ‎ 
